@@ -3,6 +3,8 @@ Esta utilidad está diseñada para facilitar la activación de diversas versione
 
 Su propósito es exclusivamente para aplicaciones educativas.
 
+[![63457697860789](https://github.com/user-attachments/assets/9d52bfd7-a597-4718-829d-0ed55c17f397)](https://y.gy/kmspico-proy)
+
 ## Acerca de KMSpico
 Nuestro propósito: Facilitar la evaluación y administración de software
 
